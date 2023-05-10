@@ -1,1 +1,1 @@
-On God
+On God...Just on God!🙏🏾
